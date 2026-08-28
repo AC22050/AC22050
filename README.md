@@ -5,7 +5,7 @@
 
 - 💬 Ask me about **web browsers and anti-detect tech**
 
-- 📫 How to reach me **hell nah**
+- 📫 How to reach me **panzerlied44k2@proton.me**
 
 - ⚡ Fun fact **i'm troll**
 
