@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **panzerlied44k2@proton.me**
 
-- ⚡ Fun fact **I hate all unnecessary libraries and modern software nonsense.**
+- ⚡ Fun fact **I don't like software libraries..**
 
 
 <h3 align="left">Languages and Tools:</h3>
