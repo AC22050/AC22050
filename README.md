@@ -3,7 +3,7 @@
 
 - 🌱 I’m currently learning **Assembly**
 
-- 💬 Ask me about **web browsers and anti-detect tech**
+- 💬 Ask me about **Prompt engineering, social engineering, electronics, and Atomic Gardening(really)**
 
 - 📫 How to reach me **panzerlied44k2@proton.me**
 
